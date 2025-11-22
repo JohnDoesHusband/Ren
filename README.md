@@ -30,7 +30,7 @@ about me; importaant if u wanna be my bff ok?
 - idk I think I was 4w3
 - my energy drains really fast soo I might suddenly get quiet
 - i have social anxiety, selective mutism, asthma
-- I SWEAR I CARE ABOUT PEOPLE'S EMOTIONS A LOT I JUST KNOW IF THEY'RE DISAPPOINTED And that makes me feel like I have to comfort them/srsly
+- I SWEAR I CARE ABOUT PEOPLE'S EMOTIONS A LOT I JUST KNOW IF THEY'RE DISAPPOINTED And that makes me feel bad/srsly
 - to my bff's, Ill send you facts/fanarts/gifts of ur favorite things and that's how I show that I care about you!
 
 I feel sorry for you having to read this all 
